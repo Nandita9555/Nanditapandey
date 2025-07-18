@@ -1,4 +1,4 @@
-# Nanditapandey
+# NanditaPandey
 Mygithub Profile
 # 👋 Hi, I’m Nandita Pandey
 
